@@ -1,1 +1,3 @@
-# block-sage-token-tactics-
+General Crypto Expertise
+trading investment and focused 
+Blockchain Development Focused
